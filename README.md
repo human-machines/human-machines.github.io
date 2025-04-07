@@ -1,2 +1,2 @@
-# githubio-template
-Template for github.io pages
+# Human machines
+A short essay.
