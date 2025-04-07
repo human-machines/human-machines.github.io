@@ -6,3 +6,4 @@ A short essay.
   carries on his affairs like a machine gets a machine-like heart; and when anyone has a 
   machine-like heart in his breast, he loses true simplicity.'"
 </pre>
+That is not true. :) He looses the infinite complexity of free will and his freedom of choice.
