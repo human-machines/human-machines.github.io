@@ -6,6 +6,6 @@ A short essay.
   carries on his affairs like a machine gets a machine-like heart; and when anyone has a 
   machine-like heart in his breast, he loses true simplicity.'"
 </pre>
-That is not true. :) He looses the infinite complexity of free will and his freedom of choice which are natural and may look like 'simplicity' for primitive minds.
+That is not true. :) He looses the infinite complexity of free will and his freedom of choice which are natural and may look like 'true simplicity' for primitive minds, who were born into slavery and don't know these words 'free will' and 'freedom'.
 
 [The essay itself](https://human-machines.github.io)
